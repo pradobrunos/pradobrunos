@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning expected in the futue
 - 💞️ I’m looking to collaborate on the people turn easy is your life
 - 📫 How to reach me social media
-- 😄 Pronouns: he/it
+- 😄 Pronouns: I/me
 - ⚡ Fun fact: histories about the culture
 
 <!---
